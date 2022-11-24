@@ -4,6 +4,10 @@ The Empty Spaces Archive Project
 
 👁 watch this space 👁
 
+# the below is outdated, will update soon : )
+
+---
+
 flow
 ----
 
